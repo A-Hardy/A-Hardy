@@ -2,7 +2,7 @@
 
 📚 I am a Civil Engineering Graduate currently studying a Computer Science degree at the University of British Columbia. 
 
-Let's connect! :smiley:
+:smiley: Let's connect! 
 
 
 
