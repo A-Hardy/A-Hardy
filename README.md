@@ -1,4 +1,4 @@
-### Hi there 👋
+### 👋 Hi, I’m Adam! 📚 I am a Civil Engineering Graduate currently studying a Computer Science degree at the University of British Columbia.
 
 <!--
 **A-Hardy/A-Hardy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
