@@ -5,6 +5,7 @@
 Let's connect! :smiley:
 
 adamjhardy96@gmail.com
+
 linkedin.com/in/adamhardycapm
 
 
