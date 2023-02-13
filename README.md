@@ -2,7 +2,10 @@
 
 📚 I am a Civil Engineering Graduate currently studying a Computer Science degree at the University of British Columbia. 
 
-:smiley: Let's connect! 
+Let's connect! :smiley:
+
+adamjhardy96@gmail.com
+linkedin.com/in/adamhardycapm
 
 
 
